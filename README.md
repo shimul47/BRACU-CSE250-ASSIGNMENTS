@@ -1,0 +1,3 @@
+https://drive.google.com/drive/folders/1InXQaFzcpopkLLxTPJhtPY7c_D0XD7-J
+
+Solved Slide: https://drive.google.com/drive/folders/1NmcP1McccX7LA89RFzj5k-uNEyNCRg-8?fbclid=IwZXh0bgNhZW0CMTAAAR1GITaCzdkOv8KQFjYIPOeDAIiUo5fOHIT10gXJwkQ2sjLoN09qUjrvtnM_aem_Ab2E764TXVsEOYSV7s-tkTLWAoqU8sAx5rY8_oN_d_gTqNPQDZmj2BlLsItZuHIAwI6tMj2YolUcSUYojifHtfrX
